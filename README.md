@@ -24,8 +24,4 @@ Cut out unwanted elements with ease. Simply select the object you want to remove
 # <h1 align=center> ✅✅✅PASSWORD - 4455✅✅✅
 
 # <h1 align=center> TURN ALL YOUR IDEAS INTO REALITY!
-![maxresdefault (2)](https://github.com/Ridola20/CIS/assets/140948405/66c89a66-8a42-44dc-abef-03fd3fbe0606)
 
-![image](https://github.com/Ridola20/CIS/assets/140948405/9e64d653-4d60-4e02-b209-5b0dd64e4ec7)
-
-![1674337409_gas-kvas-com-p-risunok-adobe-photoshop-3d-17](https://github.com/Ridola20/CIS/assets/140948405/db540617-687d-401a-b72e-69ec4637aab7)
